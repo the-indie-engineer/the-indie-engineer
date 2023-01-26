@@ -7,5 +7,5 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Consider me a satellite orbiting forever. I know all the rules, but rules do not know me. 
 - 
-- ### **~Ad Astra~**
+-  **Ad Astra**
 
